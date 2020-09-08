@@ -1,1 +1,1 @@
-https://ParfenenkovEdit.github.io/rsschool-cv/cv 
+https://ParfenenkovEdit.github.io/rsschool-cv/
